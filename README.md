@@ -48,6 +48,7 @@
 ---
 
 ## 📫 Contact  
-📧 Email: nasimsiddique@gmail.com  
+📧 Email: nasimsiddique71@gmail.com  
 💼 LinkedIn: https://linkedin.com/in/nasim-siddique  
+
 
